@@ -1,0 +1,1 @@
+Director, strategy and creative communications, **BIGMESS** • Former associate director, ***Architectural Digest***’s **AD PRO** • Former managing editor, ***Metropolis*** • Recipient, **Monotype Scholarship for Excellence in Design Criticism** • Recipient, **Paula Rhodes Memorial Award**, **SVA**
